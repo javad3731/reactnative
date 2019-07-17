@@ -1,2 +1,0 @@
-# reactCourse
-dfgbnm,dfghbjdfikjl;ptgyuhijko
